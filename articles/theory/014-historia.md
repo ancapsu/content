@@ -1,80 +1,47 @@
-﻿Anarcocapitalismo é um termo que designa algo que não tem nada a ver com anarquia nem qualquer semelhança com capitalismo. 
-Não é anarquia porque há regras, há leis. 
-O anarcocapitalismo pressupõe um ordenamento jurídico tão complexo quanto o atual ou, talvez, ainda mais complexo. 
-Só não vai haver governo compulsório, obrigatório, não há monopólio do ordenamento jurídico, não há jurisdição una.
-Você é livre para escolher o ordenamento jurídico que queira se submeter, seria algo como se houvessem vários governos no Brasil e você escolher o mais eficiente para pagar seus impostos e obedecer aquela lei. 
-Há uma base ética mínima proposta, derivada do direito de propriedade, liberdade e o PNA, mas as leis serão acrescentadas além dessa base ética.
-A menos que você entende anarquia justamente como ausência de governo coercitivo, obrigatório
-Como ninguém poder iniciar violência para obrigar os outros a fazer algo
-Porque, nesse caso, anarcocapitalismo é anarquia sim.
-Mas não é capitalismo no sentido mais usual da palavra, a acumulação de capital por estruturas de poder. Sem governo monopolista, empresas amigas do governo somem também. 
-O capitalismo de compadrio não é possível se um governo precisa ser eficiente para competir com outros governos num mercado.
-Sem regulamentação obrigatória e sem barreiras de entrada, todos os truques sujos de grandes empresas para manter monopólios e oligopólios caem por terra.
-Bom, a menos que você entenda capitalismo como livre mercado e propriedade privada. Nesse caso é capitalismo sim, porque livre mercado e propriedade privada são a base do anarcocapitalismo. 
--- Quem inventou o anarcocapitalismo? -- 
-A ideia de escolher um grupo, ou uma pessoa, para dirigir toda a sociedade é claramente uma agressão contra todas as pessoas da sociedade, principalmente com as que não gostam ou não concordam com daquele grupo ou daquela pessoa. 
-Governos são antiéticos por definição.
-Além disso, a sociedade como um todo é mais inteligente do que qualquer subconjunto de pessoas, mesmo o subconjunto mais capacitado, inteligente e bem-intencionado de indivíduos não é tão inteligente quanto toda a sociedade junta. 
-Governos, então, são intrinsecamente ineficientes.
-E há uma forma de deixar a sociedade tomar as decisões por si mesma. 
-A praxeologia mostra isso. 
-Propriedade privada e capital são os mecanismos de feedback positivos gerados nessa rede neural social. 
-Cada pessoa, agindo de forma individual, contribui com o conhecimento de toda a sociedade.
-Mas como essa ideia surgiu? 
-Anarquia é uma ideia bastante antiga, há registros de ideias e autores anarquistas datando do século 6 antes de cristo, na china.
-Governos sempre foram antiéticos e ineficientes, desde que o mundo é mundo.
-Mas a corrente anarquista ganhou força no século 19 na França, com Pierre Joshep Proudhon
-O anarquismo moderno é contra o governo e também contra qualquer mecanismo hierárquico, no que, muitos entendem, inclui ser contra a propriedade privada.
-Porém, pode-se facilmente refutar os argumentos de Proudhon de que a propriedade é roubo, porque nos torna desiguais, ao observarmos que todas as pessoas possuem pelo menos uma propriedade, a propriedade do próprio corpo, a auto-propriedade.
-Deve-se considerar ainda que todas as demais propriedades de uma pessoa, além do próprio corpo, advêm da adição de trabalho do proprietário sobre recursos naturais. 
-Mesmo a propriedade de terra é definida como uso, delimitação e defesa. 
-Portanto, sem o proprietário misturar a ação dele na propriedade, ela não existe.
-De fato, o anarquismo tradicional nunca conseguiu se firmar como uma ideologia. 
-Mesmo as pequenas comunas e aldeias anarquistas que existem no mundo, possuem, de fato, uma forma de governo.
-Não é um estado no sentido estrito da palavra, mas é uma forma de governo em que, eventualmente, um cidadão é obrigado a fazer algo contra a vontade dele por pura pressão coercitiva do grupo.
-E porque isso acontece? Acontece porque o anarquismo tradicional falha em tratar a questão da escassez.
-O número de recursos naturais é finito, ao passo que o interesse humano em determinados recursos é muito maior que o que está disponível na natureza.
-Como resultado, em qualquer sociedade pacífica, é preciso haver um mecanismo não violento para alocar os recursos finitos escassos.
-E por lógica elementar, só há três formas de fazer isso. 
-Por planejamento central, onde um governo, chefe, líder, etc decide quem vai usar qual recurso. 
-Isso se aplica a um país comunista e também a maior parte das comunas, vilas hippies e comunidades anarquistas existentes hoje.
-Sim, e dizer que é uma assembleia de pessoas que decide, não muda o fato de ser um governo. É uma entidade que decide, no final, a assembleia.
-Outra forma de resolver a escassez é por propriedade privada, em que a primeira pessoa que passou a usar um recurso, misturando seu trabalho a ele, delimitando-o e defendendo-o se torna o legítimo proprietário, em desfavor de todas as outras pessoas do mundo. 
-Evidentemente, a propriedade privada pode ser adquirida em comum acordo entre pessoas também, em que o atual legítimo proprietário cede a propriedade a outro em troca de uma compensação qualquer.
-Finalmente, o problema da escassez pode ser resolvido por um terceiro caminho, que é o misto de ambos os sistemas, parte pelo governo, em parte pela propriedade privada. Essa é a solução mais comum hoje. Governos do mundo todo usam essa alternativa hoje.
-Por essa falha em resolver a escassez, o anarquismo ficou confinado basicamente a um fator cultural. 
-Expressa muito mais a revolta interna das pessoas contra as injustiças da vida, do que realmente propõe algo factível como solução.
-De fato, a solução perfeita começou a ser desenhada ainda no século 19, com um economista austríaco chamado Carl Menger.
-Menger foi o primeiro a refutar o valor-trabalho, que era a definição usual da época, definida por Adam Smith, David Ricardo e também utilizado por Karl Marx, em O Capital. 
-O valor-trabalho dizia que o valor de um produto é ditado pelo valor dos insumos e trabalho inclusos para sua produção.
-Segundo Menger, o valor de um produto é definido pela utilidade marginal subjetiva que tem para quem o compra. Não interessa quanto trabalho foi empregado para produzir tal produto. 
-Hoje em dia, não há qualquer questionamento sério sobre esse tema. É óbvio que o valor do produto é definido pelo valor subjetivo dado pelo comprador e o valor-trabalho é considerado simplesmente um erro.
-O fato do valor-trabalho ter caído por terra, destrói todas as demais teorias do Marx. A mais valia é totalmente baseada no valor-trabalho. De fato, todas as ideias de O capital viraram uma grande pilha de papel sem utilidade. 
-Pensando melhor, uma grande pilha de papel que pode ser usado pelos venezuelanos, cubanos e outras vítimas dos erros das ideias de Marx, no lugar de papel higiênico.
-Ah, e não adianta dizer que “Marx usou o termo utilidade também, ele acreditava que o valor era trabalho e utilidade”, primeiro porque se era as duas coisas, a mais-valia não faz sentido algum. 
-A mais valia só faria potencialmente sentido se a conta for feita exclusivamente com valor trabalho. 
-E segundo porque o preço ser definido por trabalho mais utilidade foi também refutado por Menger. Menger mostrou que o valor é só utilidade marginal, não tem nenhuma relação com o trabalho.
-Mas a verdadeira revolução veio com outro economista austríaco, Ludwig Von Mises, com seu tratado sobre a Ação Humana, em que lançou as bases da Praxeologia, que é o estudo dedutivo da ação humana.
-Como os principais economistas que seguem essa linha de pensamento tinham origem austríaca, tal escola de pensamento econômico ficou conhecida como “Escola Austríaca”. 
-Importante notar que não tem qualquer relação com governo austríaco ou com a Áustria. É apenas a designação convencional da origem dos principais economistas fundadores dessa escola.
-A Praxiologia inclui um conjunto de métodos, axiomas e regras, que permite derivar todas as leis econômicas observadas na prática. 
-De fato, a praxeologia foi capaz de fazer previsões certeiras das consequências da intervenção estatal na economia.
-Além disso, em seu livro sobre o cálculo econômico, Mises demonstrou a impossibilidade completa de um regime socialista, pela simples incapacidade de se calcular os valores dos produtos.
-Mises é o grande expoente da Escola Austríaca. Todas as grandes ideias que levam ao anarcocapitalismo foram traçadas por ele.
-Porém Mises não era anarcocapitalista, pelo simples fato de que tal termo não havia sido inventado ainda. 
-Ele defendia arduamente as liberdades sociais e econômicas e previu, corretamente, que o governo é incapaz de diminuir a desigualdade social ou de melhorar as condições de vida dos pobres.
-Frederich Hayek, outro economista austríaco, foi o primeiro Prêmio Nobel de Economia da Escola Austríaca, quando mostrou que o conhecimento está disperso na sociedade e um grupo de pessoas é incapaz de deter o conhecimento necessário para planejar a economia e a sociedade como um todo.
-Mas foi Murray Rothbard, um economista americano de nascimento, com ascendência russa, mas discípulo da escola austríaca de economia, que finalmente ligou os pontos e criou o anarcocapitalismo.
-Rothbard foi aluno de Mises. Posteriormente, lançou o livro “Man, Economy and State” em que divide as intervenções do estado em três tipos, e mostra que todas elas são, ao final, prejudiciais. 
-Essa obra é considerada um complemento ao trabalho de Mises.
-O termo anarcocapitalismo não aparece em nenhuma das obras do Rothbard, que preferia o termo “libertarianismo” mas ele usava o termo como definição sinônima de anarcocapitalismo. 
-Mas o próprio Rothbard em entrevistas e palestras usava o termo anarcocapitalismo livremente, principalmente após 1950. 
-Pode-se dizer que o anarcocapitalismo nasceu em 1950, e o pai dele foi Rothbard. 
-Mas é uma ideia transformadora que culmina toda a metodologia da escola austríaca de economia e apresenta claras soluções em todas as áreas da sociedade. 
-Há dezenas de nomes importantes do passado que contribuíram para o anarcocapitalismo, Frédéric Bastiat, Henry Thoreau, Eugen Böhm von Bawerk, não vou mencionar todos para manter o vídeo curto.
-Outros economistas de renome, como Hans Herman Hoppe e Walter Block, continuam a desenvolver a teoria anarcocapitalista. Ainda há muito pela frente, mas não há dúvidas quanto ao caminho a trilhar.
-A sociedade sem estado coercitivo, sem obrigatoriedade, sem a força, será nossa organização social.
-Daqui a 30 anos, quando todos estivermos vivendo no ancapistão, essa será a história que ensinaremos aos nossos netos, sobre como superamos a idade das trevas da política estatal e chegamos a renascença social, ao ancapistão global.
+﻿Anarcho-capitalism is a word that describes something that has nothing to do with anarchy, nor does it have any resemblance to capitalism. It's not anarchy, because there are rules, laws.
 
+Anarcho-capitalism assumes a legal order as complex as the current one; perhaps even more complex. But there isn't a compulsory, mandatory government, there isn't a monopoly of the legal order; there isn't one unified judicial system. You are free to choose the legal order to which you want to submit yourself. Imagine if, where you live, you could choose, out from a set of different governments, the one to which you'd like to pay your taxes and to obey its laws. It will be something like that.
 
+There is a minimal ethical basis, derived from the right to property, freedom, and the principle of non-aggression, but other rules will be added to that common ground. Unless you understand anarchy as the absence of a coercive, mandatory government; where no one can initiate violence to make others do something. Because, in that case, anarcho-capitalism is indeed anarchy. But it is not capitalism in the most used sense of the word: that is, the accumulation of capital by power structures. Without a monopolist government, big corporations, allying themselves with politicians to thrive, are gone as well.
 
+Crony capitalism is not possible if a government needs to be efficient to compete with other governments in a market. Without compulsory rules and entry barriers, all dirty tricks used by corporations to keep monopolies and oligopolies fall apart. Well… unless you understand capitalism as free market and private property. In that case, it is capitalism indeed, since free market and private property are the basis for anarcho-capitalism.
+
+WHO CREATED ANARCHO-CAPITALISM?
+
+The idea of choosing a group, or a person, to lead society as a whole is clearly an aggression against everyone in that society, especially those who don't like or don't agree with said group or person. Governments are unethical by definition. Moreover, the society as a whole is more intelligent than any group of people; even the most skilled, smart, well-intentioned group is not as intelligent as the society taken as a whole. Governments, then, are intrinsically inefficient. And there is a way to let society decide for itself. Praxeology shows it. Private property and capital are the mechanisms of positive feedback created in that social neural network. Each person, acting individually, contributes to the knowledge of the society at large. But how did this idea came about?
+
+Anarchy is an old idea; there are records of anarchist ideas and writers back in the 6th Century BC, in China. Governments have always been unethical and inefficient, since the beginning of time. But anarchist ideas gained traction in the 19th century, in France, with Pierre-Joshep Proudhon. Not only is modern anarchy against government, but it’s also against any hierarchical structure, including, according to some, private property. Proudhon stated that private property is theft, because it makes us unequal. However, he can be easily rebutted, because every person owns at least one thing, that is, his or her own body.
+
+Other properties someone has, besides his or her body, come out by mixing one’s labor with natural resources. Even land owned is defined as use, limitation, and defense. Thus, without mixing it with labor, a given property doesn't exist. As a matter of fact, traditional anarchism never managed to hold as an ideology. Even small anarchist villages and communes that exist throughout the world have, actually, a form of government. It is not a state in the strict sense of the word, but it is a form of government in which, occasionally, a citizen has to do something against his or her due purely to coercive pressure from the group.
+
+And why does it happen? It happens because traditional anarchism fails to cope with the issue of scarcity. Whereas the amount of natural resources is finite, the demand that people have for them is much higher. As a consequence, in any peaceful society, there should be a non-violent way to allocate finite resources. And, by pure logic, there are only three ways to do it.
+
+The first one would be through central planning, in which a government, a ruler, or a leader decides who is going to use a given resource. This is what happens in a communist country and also in most of the communes, hippie villages, and anarchist communities existing nowadays. Yes, and saying that it is an assembly that decides does not change the fact that it is a form of government; as it is a governing body that, ultimately, establishes the assembly.
+
+Another way to solve the problem of scarcity is through private property, in which the first person to use a given resource, mixing his or her own labor to it, marking it off and defending it, becomes the legitimate owner. The current legitimate owner transfers its property title to someone else in exchange for a compensation.
+
+Finally, the problem of scarcity may be solved in a third way, a mixture of the previous two, partly by the government, partly by private property. This is the most common solution nowadays. Governments all over the world use that alternative today.
+
+Thanks to that failure in solving scarcity, anarchism has been traditionally confined as a cultural factor, being considered more as an internal revolt against life's hardships than a real, viable solution.
+
+As a matter of fact, the perfect solution began to be outlined in the 19th century, by an Austrian economist named Carl Menger. Menger was the first to refute the labour theory of value, popular at the time, and adopted by Adam Smith, David Ricardo, Karl Marx, among others. The labor theory of value stated that the valuation of a marketable commodity was defined by the value of the inputs and the labor used in its production. According to Menger, however, the value of a commodity is defined by its subjective marginal utility as perceived by the buyer, irrespectively of the amount of labor used to produce it.
+
+Nowadays, there is no real questioning about that issue. It is obvious that the value of a commodity is defined by the subjective perception of the buyer and that the labor theory of value is just mistaken. The fact that the labor theory of value was refuted destroyed all other theories by Marx. The surplus value is completely based on the labor theory. Indeed, all ideas that appear on "The Capital" became a big pile of useless paper. On a second thought, a big pile of paper that can be used as toilet paper by Venezuelans, Cubans, and other victims of Marx's ideas.
+
+And it's no use saying that "Marx also used the term 'utility' and that he believed that value was labor and utility”, because if surplus value was both, then it didn't make any sense. The surplus value theory would be potentially useful only if calculated based on the labor theory. Moreover, value being defined as labor plus utility was also refuted by Menger, who had shown that value is only marginal utility, with no relation to labor whatsoever.
+
+But the true revolution came with another Austrian economist, Ludwig von Mises, with his treatise about "Human Action", that established the foundations of Praxeology, the deductive study of human action. Since most of the economists that followed this school had Austrian roots, such school of economic thought has been known as the "Austrian School". Notice that it doesn't have any relation to the Austrian government nor to Austria. It's just a reference to the origin of the main economists that founded that school.
+
+Praxeology includes a set of methods, axioms, and rules that allow one to deduce all of economic laws observed in the real world. In fact, praxeology was able to predict correctly the consequences of state intervention in the economy. Besides, in his book about economic calculation, Mises showed the impossibility of a socialist regime, due simply to the inability of calculating the prices of the products.
+
+Mises is the maximum exponent of the Austrian School. All important ideas that lead to anarcho-capitalism have been set forth by him. Mises, however, was not an anarcho-capitalist, simply because the term had not been coined yet. He was a passionate advocate of social and economic freedom and predicted correctly that government is unable to reduce social inequalities or improve living standards of the poor.
+
+Friedrich Hayek, another Austrian economist, was the first laureate of the Nobel Prize in Economics coming from the Austrian School. He showed that knowledge is dispersed throughout society, and a group of people, no matter how wise or well-intentioned, doesn’t hold enough knowledge to plan and guide the economy and the society at large.
+ 
+But it was Murray Rothbard, an American economist with Polish and Russian ancestry, disciple of the Austrian School, who finally connected the dots and created anarcho-capitalism. Rothbard had been previously supervised by Mises. Later, he published a book titled “Man, Economy and State”, in which he divides state intervention in three types and shows how all of them are ultimately detrimental. This book is an addition to Mises's work.
+
+The term "anarcho-capitalism" doesn't appear often in Rothbard's works. Instead, he preferred the term "libertarianism" in his papers and books. Nevertheless, he considered both terms as synonyms. However, Rothbard himself used many times the term "anarcho-capitalism" in interviews and lectures, especially after 1950. One may say that anarcho-capitalism was born in 1950 and that Rothbard was its father. But it's a transforming idea that encompasses all methodology of the Austrian School of Economics and presents clear solutions to all aspects of society.
+
+There are many authors who were important to anarcho-capitalism; for instance: Frédéric Bastiat, Henry Thoreau, Eugen Böhm von Bawerk; I will refrain from mentioning all of them here, so to keep the video short. Other renowned economists, such as Hans-Hermann Hoppe and Walter Block, have been improving anarcho-capitalist theory. There is still much to be done, but we are on the right track.
+
+Society without a state, without coercion, without force will be our social organization. Thirty years from now, when we will all be living in Ancapistan, this will be the history we are going to teach our grandchildren, how we overcame the dark ages of state policy and reached social renaissance, the global Ancapistan.
