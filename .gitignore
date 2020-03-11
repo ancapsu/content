@@ -1,3 +1,5 @@
+# ignore settings VSCodium
+.vscode/
 
 # Created by https://www.gitignore.io/api/windows,linux,osx
 # Edit at https://www.gitignore.io/?templates=windows,linux,osx
