@@ -34,7 +34,7 @@ A Rua do Catete hoje é meio esquecida, mas já foi uma rua importante para os e
 O governo brasileiro, antes de construírem Brasília, ficava aqui, na Rua do Catete, no chamado Palácio do Catete.
 Felizmente hoje só tem um museu empoeirado lá, com um pijama sujo de sangue que fica lá.
 Mas o curioso, muita gente não sabe, é que a Rua do Catete é mais antiga que o Brasil.
-O tupinambás e os maracajás, eras os índios que habitavam essa região e já habitavam aqui muito antes dos portugueses
+O tupinambás e os maracajás, eram os índios que habitavam essa região e já habitavam aqui muito antes dos portugueses
 chegarem. Haviam várias vilas no Rio de Janeiro.
 Mas não aqui no Catete. A região do Catete era uma região pantanosa, alagadiça, ninguém usava para nada.
 E, realmente, até hoje quem mora aqui sabe. Choveu, a Rua do Catete enche. Desde sempre foi assim.
@@ -96,7 +96,7 @@ Aqui no Brasil, nós temos a União, os Estados e os Municípios. Cada um cobra 
 por exemplo, são municipais, ICMS e IPVA, por exemplo, são estaduais, e IRPF e IPI são exemplos nacionais.
 Lá eles tem a União, os Estados, os Condados e os Municípios. Da mesma forma, cada um desses cobra seus impostos.
 Sim, toda a Las Vegas Strip, aquela rua principal que tem todos os cassinos, que sempre aparece quando se fala de
-las vegas, que tem até aquela plaquinha característica, ela não pertence ao município de las vegas.
+Las Vegas, que tem até aquela plaquinha característica, ela não pertence ao município de Las Vegas.
 Como não pertence a município, o município não presta o policiamento, não asfalta rua, não cuida do esgoto e da água.
 Tudo isso é feito pela associação de cassinos da região.
 Adivinha: funciona muito melhor do que qualquer prefeitura. Muito mais barato até para os cassinos.
