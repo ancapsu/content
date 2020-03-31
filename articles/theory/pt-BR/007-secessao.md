@@ -1,4 +1,4 @@
-﻿Geralmente o termo secessão tem uma conotação negativa, fruto de propaganda governamental que, óbvio, prefere roubar mais gente do que roubar menos gente. 
+Geralmente o termo secessão tem uma conotação negativa, fruto de propaganda governamental que, óbvio, prefere roubar mais gente do que roubar menos gente. 
 Nenhum governo gosta de secessão. 
 Coloca isso como proibido, ilegal, traição em todas as leis possíveis.
 Apesar disso, secessão é algo comum na história. 

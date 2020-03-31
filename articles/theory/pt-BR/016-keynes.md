@@ -1,4 +1,4 @@
-﻿O livre mercado não é sustentável, porque, 
+O livre mercado não é sustentável, porque, 
 de tempos em tempos, surgem crises que destroem a economia e o mercado entra em colapso. 
 Apenas a regulamentação do governo pode impedir ou mitigar as crises e só o governo consegue nos tirar delas.
 Quantas vezes você já foi avisado que o capitalismo morreu... aposto que a mais recente foi na crise de 2008, da qual ainda não saímos quase 10 anos depois... antes dessa teve a de 2003, em que o capitalismo morreu também, com a falência da Enron... antes disso a crise russa que matou o capitalismo em 98, a 92, a de 87... 

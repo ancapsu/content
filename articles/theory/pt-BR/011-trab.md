@@ -1,4 +1,4 @@
-﻿A revolução industrial foi uma época triste para muita gente. 
+A revolução industrial foi uma época triste para muita gente. 
 Empresários malvadões explorando homens, mulheres e até crianças, que trabalhavam jornadas de 16 horas por dia em suas fábricas. 
 As condições de trabalho eram terríveis e os salários eram uma miséria.
 O que muita gente deixa de se perguntar é: porque as crianças e os pais delas aceitavam essas condições, uma vez que não eram obrigados a isso?

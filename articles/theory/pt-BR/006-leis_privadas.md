@@ -1,4 +1,4 @@
-﻿Tomas Hobbes foi um importante filósofo do Século XVII 
+Tomas Hobbes foi um importante filósofo do Século XVII 
 Ele sacramentou a necessidade de um estado para a boa convivência humana. 
 Segundo seu livro “O Leviatã”, o homem, se deixado por sua própria conta tenderia a guerra completa, pois não há limites para a ambição e violência humanas, 
 Ocorreria o que ele chamou de “estado de natureza”, em que todos brigariam contra todos e ninguém teria paz.
