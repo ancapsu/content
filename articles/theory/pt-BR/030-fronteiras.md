@@ -1,4 +1,4 @@
-﻿A queda de uma única fronteira, as muralhas da cidade de Roma, jogou todo o mundo em 1000 anos de sombras e barbárie. O saque de Roma em 400 D.C., realizado por visigodos liderados por Alarico, foi um dos principais eventos para a queda do império romano do ocidente, que levou a idade das trevas.
+A queda de uma única fronteira, as muralhas da cidade de Roma, jogou todo o mundo em 1000 anos de sombras e barbárie. O saque de Roma em 400 D.C., realizado por visigodos liderados por Alarico, foi um dos principais eventos para a queda do império romano do ocidente, que levou a idade das trevas.
 Como teria sido a história se Alarico, um visigodo que durante muito tempo foi um líder de uma tropa romana, não tivesse se tornado um traidor e se virado contra os romanos?
 Como vamos proteger as nossas fronteiras sem estado?
 Espera, antes disso...

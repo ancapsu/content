@@ -1,4 +1,4 @@
-﻿
+
 
 Tenho visto várias discussões entre libertários anarcocapitalistas sobre gradualistas versus brutalistas versus agoristas.
 Procurei a definição de cada um desses termos e confesso que fiquei mais confuso ainda. 

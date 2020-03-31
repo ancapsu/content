@@ -1,4 +1,4 @@
-﻿Vamos admitir. 
+Vamos admitir. 
 A verdade é que o problema ambiental se tornou totalmente insustentável. 
 A poluição causa doenças prejudica a vida de milhares de pessoas. 
 Tentar se locomover pelas ruas de grandes cidades como nova Iorque ou Londres está se tornando impossível.

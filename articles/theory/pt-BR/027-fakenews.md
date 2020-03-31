@@ -1,4 +1,4 @@
-﻿O que são “fake news”?
+O que são “fake news”?
 
 
 A resposta mais óbvia, a tradução direta do termo é “notícia falsa”.

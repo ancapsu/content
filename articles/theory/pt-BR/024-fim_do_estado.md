@@ -1,4 +1,4 @@
-﻿No meu primeiro vídeo falei rapidamente sobre porque acredito que o estado vai desaparecer sozinho.
+No meu primeiro vídeo falei rapidamente sobre porque acredito que o estado vai desaparecer sozinho.
 Falei que ele foi relevante economicamente durante boa parte da história, 
 trazia lucro para quem o respeitasse. 
 Foi algo necessário mesmo, mas não é mais necessário agora. 

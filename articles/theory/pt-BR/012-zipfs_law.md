@@ -1,4 +1,4 @@
-﻿The richest 10% owns 50% of the country's wealth. The poorest 50% owns only 10% of the wealth. 
+The richest 10% owns 50% of the country's wealth. The poorest 50% owns only 10% of the wealth. 
 You probably have heard statistics like that a thousand times.
 The traditional media repeats these statistics almost like mantras.
 Just to end up reinforcing government actions such as "Taxing the rich", “Progressive taxes”, "Income redistribution programs" and other nonsense.

@@ -1,4 +1,4 @@
-﻿Políticos, desde que o mundo é mundo, criam leis idiotas pelos mais diversos motivos. A maior parte delas tem boas intenções, querem gerar um impacto positivo na sociedade. 
+Políticos, desde que o mundo é mundo, criam leis idiotas pelos mais diversos motivos. A maior parte delas tem boas intenções, querem gerar um impacto positivo na sociedade. 
 Mas o que a sociedade em geral e os políticos em particular falham em perceber é que o efeito de uma lei não depende das boas intenções dela.
 Algumas leis idiotas criadas por políticos simplesmente caem na irrelevância. Simplesmente são ignoradas e não fazem efeito algum.  Essas são as boas leis.
 Porque as outras, a maior parte das leis idiotas, não apenas falham em atingir o objetivo pretendido, como geram prejuízo enorme para toda a sociedade.

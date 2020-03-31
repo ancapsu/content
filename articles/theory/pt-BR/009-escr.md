@@ -1,4 +1,4 @@
-﻿Haverá escravidão no ancapistão?
+Haverá escravidão no ancapistão?
 Pode parecer óbvio que não, mas, pense bem: se uma pessoa quiser, voluntariamente, se vender como escravo para outra pessoa. 
 Trata-se de um acordo comum entre as partes. Vale isso no ancapistão?
 O libertarianismo é uma filosofia política que prega como direitos fundamentais humanos o direito à propriedade e o direito à liberdade.  

@@ -1,4 +1,4 @@
-﻿# Quem vai construir as estradas?
+# Quem vai construir as estradas?
 
 É inevitável. Sempre que explico para algum amigo ou cliente que sou anarcocapitalista, que acho governo uma coisa desnecessária, a primeira pergunta que me fazem é: mas, e quem vai construir as estradas? Não estou falando de socialistas querendo denegrir o libertarianismo, mas da curiosidade natural das pessoas.
 
