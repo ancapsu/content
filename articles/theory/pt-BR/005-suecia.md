@@ -1,4 +1,4 @@
-﻿Como não sentir inveja da Suécia?
+Como não sentir inveja da Suécia?
 Os caras têm um país bacana, tudo funciona direitinho, educação, saúde, eles tem uma boa renda per capita.
 Andam fechando presídios por falta de prisioneiros!
 E, além disso, os caras são campeões de competição de bikini como mulheres lindíssimas! 

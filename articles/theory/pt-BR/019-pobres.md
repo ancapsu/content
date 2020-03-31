@@ -1,4 +1,4 @@
-﻿Onde estarão os pobres no ancapistão?
+Onde estarão os pobres no ancapistão?
 
 A preocupação é sempre a mesma, embora tome várias formas.
 É justo deixar alguém morrer de fome na rua, enquanto do outro lado do muro um milionário dá uma festa?

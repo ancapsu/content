@@ -1,4 +1,4 @@
-﻿Posso votar e ser anarquista?
+Posso votar e ser anarquista?
 Durante muito tempo, no Brasil, a política foi dominada pela progressivismo, o que muita gente entende como “esquerda”. Dezenas de partidos, todos eles a esquerda do espectro político. 
 Aqueles que defendem liberdades sociais, como casamento gay, liberação das drogas, mas se opõe a liberdade financeira, pelo contrário, querem um estado enorme que controle toda a economia.
 Muita gente atribui isso a uma estratégia de infiltração dos socialistas na mídia e nas escolas. 
