@@ -1,4 +1,4 @@
-﻿Anarcocapitalismo é um termo que designa algo que não tem nada a ver com anarquia nem qualquer semelhança com capitalismo. 
+Anarcocapitalismo é um termo que designa algo que não tem nada a ver com anarquia nem qualquer semelhança com capitalismo. 
 Não é anarquia porque há regras, há leis. 
 O anarcocapitalismo pressupõe um ordenamento jurídico tão complexo quanto o atual ou, talvez, ainda mais complexo. 
 Só não vai haver governo compulsório, obrigatório, não há monopólio do ordenamento jurídico, não há jurisdição una.

@@ -1,4 +1,4 @@
-﻿Anarcho-capitalism is a word that describes something that has nothing to do with anarchy, nor does it have any resemblance to capitalism. It's not anarchy, because there are rules, laws.
+Anarcho-capitalism is a word that describes something that has nothing to do with anarchy, nor does it have any resemblance to capitalism. It's not anarchy, because there are rules, laws.
 
 Anarcho-capitalism assumes a legal order as complex as the current one; perhaps even more complex. But there isn't a compulsory, mandatory government, there isn't a monopoly of the legal order; there isn't one unified judicial system. You are free to choose the legal order to which you want to submit yourself. Imagine if, where you live, you could choose, out from a set of different governments, the one to which you'd like to pay your taxes and to obey its laws. It will be something like that.
 

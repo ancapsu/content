@@ -1,4 +1,4 @@
-﻿Olá eu sou o Peter Turguniev. 
+Olá eu sou o Peter Turguniev. 
 Seja bem-vindo ao canal ANCAP.SU. 
 o nome é o nome do nosso site http://ancap.su
 Aqui falamos sobre anarcocapitalismo à brasileira.

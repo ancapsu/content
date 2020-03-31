@@ -1,4 +1,4 @@
-﻿O criminoso é condenado a ser atenazado nos mamilos, braços, coxas e barrigas das pernas, 
+O criminoso é condenado a ser atenazado nos mamilos, braços, coxas e barrigas das pernas, 
 Sua mão direita será queimada com fogo de enxofre, 
 E às partes em que será atenazado se aplicarão chumbo derretido, óleo fervente, piche em fogo, cera e enxofre
 A seguir seu corpo será puxado e desmembrado por quatro cavalos

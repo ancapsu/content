@@ -1,4 +1,4 @@
-﻿O que são externalidades?
+O que são externalidades?
 Qualquer atividade humana gera uma série de consequências, além do objetivo final da atividade.
 Quando está frio e queimamos lenha, geramos calor, que é nosso objetivo principal. 
 Mas também geramos fumaça e cinzas, que são consequências inevitáveis dessa nossa ação, mas não faziam parte do nosso interesse.

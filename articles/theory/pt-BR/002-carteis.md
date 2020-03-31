@@ -1,4 +1,4 @@
-﻿Monopólios, oligopólios e cartéis são arranjos de empresas altamente prejudiciais aos consumidores e a população em geral.
+Monopólios, oligopólios e cartéis são arranjos de empresas altamente prejudiciais aos consumidores e a população em geral.
 Os malvados empresários se reúnem para cobrar preços altos e forçar serviços ruins para os consumidores.
 Sem o governo, quem vai nos proteger desses empresários malvadões?
 Como impedir os cartéis?

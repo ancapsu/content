@@ -1,4 +1,4 @@
-﻿O equilíbrio de Nash refuta o anarcocapitalismo?
+O equilíbrio de Nash refuta o anarcocapitalismo?
 
 O matemático John Nash tem uma história pessoal fantástica, que já foi tema de livros, debates, estudos e até um filme, “Uma Mente Brilhante” de 2001. Um gênio matemático, atormentado por distúrbios mentais severos, paranoia, esquizofrenia, mas que conseguiu levar uma vida plena, tanto no campo profissional quanto no campo pessoal. A principal contribuição dele para a matemática é um paper extremamente curto, uma maravilha da concisão matemática. Duas páginas apenas: pontos de equilíbrio em um jogo de n-pessoas.
 Teoria dos jogos é um campo da matemática que tem sido usado de forma ampla para a modelagem de situações sociais complexas. Como toda modelagem, todos os conceitos da teoria dos jogos, são uma simplificação e, portanto, os resultados precisam ser considerados dentro dos limites definidos pelo estudo. Porém, o fato de permitir demonstrações formais matemáticas de conceitos sociais, torna-se algo muito interessante e revelador. Lembre-se: demonstração matemática formal significa que aquele princípio é uma lei natural, não há refutação possível a isso.

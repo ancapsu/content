@@ -1,4 +1,4 @@
-﻿Anarcocapitalistas discutindo economia são a representação humana da serenidade.
+Anarcocapitalistas discutindo economia são a representação humana da serenidade.
 Não é que não existam questões polêmcias, pontos a esclarecer, dúvidas existenticiais, etc
 Mas toda a discussão é ponderada e cercada de equilíbrio, argumentos lógicos e etc. 
 Agora, você já viu anarcocapitalistas discutindo o direito de propriedade da mulher sobre o próprio corpo, quando há um feto dentro dele?  Pois é...  
