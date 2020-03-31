@@ -2,7 +2,7 @@
 
 É inevitável. Sempre que explico para algum amigo ou cliente que sou anarcocapitalista, que acho governo uma coisa desnecessária, a primeira pergunta que me fazem é: mas, e quem vai construir as estradas? Não estou falando de socialistas querendo denegrir o libertarianismo, mas da curiosidade natural das pessoas.
 
-Aparentemente essa reação sobre estradas é realmente muito comum. Não só aqui no brasil, mas no mundo todo. O meme “Muh Roads!” já surgiu nos EUA destacando exatamente isso.  
+Aparentemente essa reação sobre estradas é realmente muito comum. Não só aqui no Brasil, mas no mundo todo. O meme “Muh Roads!” já surgiu nos EUA destacando exatamente isso.  
 “Eu concordo com escravidão, roubo e assassinato, porque... quem iria construir estradas...”  
 “Prova de que cervos já tem um governo...”  
 “E o estado disse: que se façam as estradas...”
