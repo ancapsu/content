@@ -1,5 +1,7 @@
+# Animais tem direitos?
+
 Seres humanos são tão ligados aos animais que uma das perguntas mais comuns em grupos de discussão anarcocapitalistas é: “Quem vai proteger os animais no ancapistão?”. Eu, particularmente, acho engraçado, porque... como assim... quem disse que o estado protege os animais hoje?
-Mas eu entendo a dificuldade das pessoas. Quem está acostumado a leis como solução, demora um tempo para perceber que leis não resolvem absolutamente nada. 
+Mas eu entendo a dificuldade das pessoas. Quem está acostumado a leis como solução, demora um tempo para perceber que leis não resolvem absolutamente nada.
 Eu estou preocupado que cavalos estejam sofrendo na mão de carroceiros cruéis? Que o estado faça uma lei proibindo carroças puxadas a cavalo. Lógico, isso vai fazer com que centenas de cavalos sejam abandonados em estradas e morram de fome, ou atropelados, mas, pelo menos eu não tenho que ver o cavalo puxando carroça, minha consciência está livre. Os cavalos estão agora muito pior que antes, mas minha consciência está limpa.
 O que falta a muita gente entender é que a relação entre humanos e animais vai muito além da mera exploração. É uma simbiose econômica entre espécies.
 
@@ -10,15 +12,15 @@ O fato é que esses direitos dependem exclusivamente da espécie. Não há como 
 Um ser humano pode estar em estado vegetativo, sem qualquer sinal de senciência. Ainda assim, tem direitos, e os demais animais sencientes não. Para aqueles que acham que definir o limite em “Espécie humana” é algo aleatório, eu aponto que definir o limite em “seres sencientes” também é algo aleatório. Todos os seres vivos, afinal, querem continuar vivos, incluso vírus, bactérias e vegetais.
 Mas um ponto muito importante, que sempre ressalto: isso não quer dizer que possamos tratar animais como quisermos. O PNA é o mínimo ético. É só o ponto de partida. Culturas, empresas de segurança e contratos vão estabelecer regras adicionais além do PNA.
 Imagino que seria muito comum, numa sociedade libertária, que exista uma entidade de monitoramento dos animais. Essa entidade pode publicar uma lista de pessoas que maltratam animais e, certamente, muita gente da sociedade civil vai fazer boicote dessas pessoas. O PNA não foi envolvido em momento algum, mas as pessoas vão ter incentivos para não maltratarem animais.
-Essa é a lógica de uma sociedade descentralizada. Você não precisa de nenhuma lei, nenhum mecanismo que não seja apenas a informação. 
+Essa é a lógica de uma sociedade descentralizada. Você não precisa de nenhuma lei, nenhum mecanismo que não seja apenas a informação.
 Além disso a ideia de resolver temas complexos com leis simplistas sempre dá margem a problemas maiores que o problema original. Como explicamos no caso dos cavalos e carroças. Toda vez que o governo resolve um problema com uma lei gera dez problemas dez vezes maiores que o problema original.
 A interação entre seres humanos e algumas espécies animais é tão antiga e interdependente que podemos dizer claramente que nossa espécie é simbiótica com várias espécies animais.
 Não seriamos capazes de viver hoje, em nosso padrão de vida, sem o gado, frango e porco. A ingestão de proteína seria radicalmente reduzida, abaixo do mínimo necessário para a maior parte da população. Apenas adultos com grau significativo de riqueza podem se dar ao luxo de ser veganos, de obter proteínas suficientes de vegetais especificamente preparados e, mesmo nesses casos, existem questionamentos se isso seria saudável. Para bebes, crianças e adolescentes é comprovadamente prejudicial à saúde não ingerir carne.
-Mas não somos apenas nós que dependemos do gado. O gado atual, descendente dos Aurochs europeus, já extintos a muitos séculos, até é capaz de reverter ao estado selvagem, mas com dificuldades. O pior que poderia acontecer com o gado seria toda a humanidade se tornar vegana, porque os mesmos seriam abandonados, uma vez que não tem mais valor econômico, e, afora alguns poucos mantidos por motivos religiosos, provavelmente morreriam aos milhões. 
-Espécies como a galinha, o porco tem relação tão estreita conosco quanto o gado e seguiriam o mesmo caminho. 
+Mas não somos apenas nós que dependemos do gado. O gado atual, descendente dos Aurochs europeus, já extintos a muitos séculos, até é capaz de reverter ao estado selvagem, mas com dificuldades. O pior que poderia acontecer com o gado seria toda a humanidade se tornar vegana, porque os mesmos seriam abandonados, uma vez que não tem mais valor econômico, e, afora alguns poucos mantidos por motivos religiosos, provavelmente morreriam aos milhões.
+Espécies como a galinha, o porco tem relação tão estreita conosco quanto o gado e seguiriam o mesmo caminho.
 Outras espécies, embora sejam domésticas, guardam menos relação com o ser humano. Por exemplo, a galinha d’angola, comum no interior do Brasil, foi domesticada muito depois da galinha comum, de fato, criar galinha d’angola envolve muito menos contato que a galinha. Elas não ficam bem em confinamento, mas estão sempre em torno da residência.
 É curioso como tudo aponta para o tempo de domesticação. A domesticação dos animais não aconteceu toda de uma vez, mas em levas.
-O cachorro foi o claramente o primeiro, mesmo antes da invenção da agricultura, em 15.000 A.C. Os demais vieram depois da agricultura, ou junto com ela. Cabra, porco, ovelha, gado e o gato, por volta de 8.000 AC. Galinha, Burro, Pato, Buffalo, Abelha, Dromedário e Cavalo, por volta de 4.000 AC. 
+O cachorro foi o claramente o primeiro, mesmo antes da invenção da agricultura, em 15.000 A.C. Os demais vieram depois da agricultura, ou junto com ela. Cabra, porco, ovelha, gado e o gato, por volta de 8.000 AC. Galinha, Burro, Pato, Buffalo, Abelha, Dromedário e Cavalo, por volta de 4.000 AC.
 Yak, Camelo, Lhama, Alpaca, Galinha d’angola, Pombo por volta de 2.000 AC.
 Os demais, como os Carpa, Perú, Coelho, Canário, e outros, só depois do ano 0. Existem espécies que foram domesticadas no século XX, como a raposa doméstica, porco espinho doméstico e vários peixes de aquário.
 Mas nossa evolução como sociedade tem apresentado outras particularidades interessantes. Por exemplo, a visão de animais tem sofrido uma crescente humanização. Cada vez mais as pessoas vêm animais no mesmo status de seres humanos.
@@ -41,12 +43,11 @@ Os requisitos para a domesticação de uma espécie são:
     1) Comportamento dócil, ninguém quer ser ferido ao domesticar um animal;
     2) Capacidade de reprodução em cativeiro, algumas espécies simplesmente não reproduzem em cativeiro;
     3) Tendência a ter uma organização social com um líder.
-Nesse ponto cabe uma observação pertinente. 
+Nesse ponto cabe uma observação pertinente.
 Veja: o ser humano, desde a criação de cidades, tem o comportamento progressivamente mais dócil. Nos reproduzimos sem problemas em grandes grupos, até em cativeiro se necessário. Aparentemente, grande parte da população ainda sente falta de um líder para dizer a eles o que fazer. Sem o líder-alfa, o político de estimação, ficam perdidos como um cachorro na rua.
-Até que ponto o ser humano foi domesticado? Será que o estado não é a domesticação do homem pelo homem? 
+Até que ponto o ser humano foi domesticado? Será que o estado não é a domesticação do homem pelo homem?
 Será a vida em um estado uma necessidade psicológica para a maior parte da população? Será que fomos domesticados a ponto de precisar de alguém chicoteando nossa bunda com leis para andarmos para frente?
 Bom, eu não sei essas respostas. Acho mesmo que o grosso da população sempre vai clamar por estado. Estão domesticados. Precisam de um dono.
-Meu ponto é que, quem quiser servir ao estado deve ser livre para fazer isso. Não critico socialistas e seu amor e subserviência ao político macho-alfa. Acho mesmo que, no ancapistão, haverá instituições similares ao estado para mandar em você, se você quiser. 
-Mas é importante que ninguém seja limitado pela maioria. A sociedade limitada pela média é incapaz de evoluir. E a evolução natural do ser humano é viver pela informação, não pelo estado. Felizmente o estado vai se tornar cada vez mais inviável economicamente. 
+Meu ponto é que, quem quiser servir ao estado deve ser livre para fazer isso. Não critico socialistas e seu amor e subserviência ao político macho-alfa. Acho mesmo que, no ancapistão, haverá instituições similares ao estado para mandar em você, se você quiser.
+Mas é importante que ninguém seja limitado pela maioria. A sociedade limitada pela média é incapaz de evoluir. E a evolução natural do ser humano é viver pela informação, não pelo estado. Felizmente o estado vai se tornar cada vez mais inviável economicamente.
 A lição para você, caro socialista domesticado, é que o estado vai acabar de forma inevitável. Aprenda a não exigir que outros obedeçam as ideias do seu macho-alfa. Aprenda a viver sem o estado coercitivo, ou morra junto com ele.
-
